@@ -7,4 +7,4 @@
 
 💙 Join my GitHub
 
-![preview img](/)
+![preview img](/408shots_so.png)
